@@ -3,7 +3,6 @@
 - 🌱 I’m beginner, so currently learning.
 - 💞️ I'd like to be taught how to make games.
 - 📫 How to reach me Discord : yuna495#4725
-- 😄 Pronouns: she.
 - ⚡ Fun fact: ...
 
 <!---
